@@ -1,0 +1,3 @@
+
+# Nelson es mi ayudante virtual personal
+Nelson es mi ayudante virtual personal. Puede ser bastante... extraño. No se ofenda y pregúntele todo lo que quiera. Y, por si fuera de utilidad, le gusta hablar de cine, motos y series...
